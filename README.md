@@ -1,2 +1,0 @@
-# paikoj
-Amino
